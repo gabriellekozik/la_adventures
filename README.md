@@ -4,4 +4,4 @@
 
 ### L.A. Adventure App
 
-**Gabrielle kozik**
+**Gabrielle Kozik**
